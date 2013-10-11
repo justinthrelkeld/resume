@@ -35,7 +35,7 @@ Middle Tennessee State University. Bachelors of Science, Mass Communication: Jou
 
 ## Experience
 
-*April 2013–present* 
+*April 2013–present*  
 Webmaster, Nashville Parent Magazine/Day Communications Inc.
 Maintained online presence for a magazine publisher. Responsibilities include updating of online content, managing advertising inventory, and deploying email-based marketing campaigns, as well as developing related artwork and producing any required HTML components.
 
@@ -43,14 +43,14 @@ Increased average email newsletter open rate from 14% to 19% by developing a new
 
 ---
 
-*December 2012–present* 
+*December 2012–present*   
 Creative Director, HelloFriend Design Company/323 Creative Group
 
 Started and maintained an independent design firm specializing in print and interactive design. Led communication design projects for multiple clients. Worked with clients to identify needs and develop solutions for variety of branding challenges, from websites to logo design. Led other team members in designing and implementing various components.
 
 ---
 
-*August 2011–May 2013* 
+*August 2011–May 2013*  
 Junior Web Production Specialist, Marketing and Communications Office, Middle Tennessee State University
 
 Assisted the Web Marketing Specialist by creating graphics for online use, monitoring social media, and participating in projects that included video editing, web design, photography, and copy editing tasks. 
@@ -59,7 +59,7 @@ Notable projects include creation of a dynamic online landing page to compliment
 
 ---
 
-*March 2012 – October 2012* 
+*March 2012 – October 2012*  
 Advertising Manager, MTSU Sidelines
 
 As primary point of contact and representative for Sidelines advertising worked with the advertising sales team at a local Gannett-owned newspaper to identify and nurture contacts interested in advertising with MTSU Sidelines.
@@ -68,7 +68,7 @@ Increased the average weekly advertising revenue by 138% allowing the once-a-wee
 
 ---
 
-*January 2012 – May 2012* 
+*January 2012 – May 2012*  
 Account Executive, Fueling Change Now Campaign (Class Project)
 Led a team of five students in creating a campus-focused integrated marketing campaign. Interviewed candidates and selected individuals to become team members, facilitated creative exploration of our client’s problem, and wrote summaries for and presented all proposed ideas.  
 
