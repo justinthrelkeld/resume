@@ -1,8 +1,8 @@
 # Résumé
 Contact information: 
-Justin Threlkeld 
-Justin.threlkeld@gmail.com 
-615.649.1107 
+Justin Threlkeld  
+Justin.threlkeld@gmail.com  
+615.649.1107  
 
 ## Objective
 To look ahead and create new solutions to old problems, or repurpose old solutions to new problems—to always be several steps ahead. To empower individuals to connect, communicate, and create.
