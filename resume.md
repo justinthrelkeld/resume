@@ -1,5 +1,5 @@
 # Résumé
-Contact information: 
+Contact information:  
 Justin Threlkeld  
 Justin.threlkeld@gmail.com  
 615.649.1107  
